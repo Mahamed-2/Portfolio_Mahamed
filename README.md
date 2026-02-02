@@ -98,7 +98,7 @@ I want my work to **matter**, be **used**, and be **trusted**.
 
 ## contact me :
 
-- 💼 LinkedIn: 
+- 💼 LinkedIn: https://www.linkedin.com/in/mahamed-ali-931ab3151/
 
 
 
